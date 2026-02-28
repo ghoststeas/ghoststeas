@@ -1,5 +1,5 @@
-[kairi-sora-and-riku-together-at-destiny-islands-kingdom-hearts.webm](https://github.com/user-attachments/assets/4e5b31c5-6af4-4bdc-a7cc-3cdea961c7b4)
-
+[
+](https://imgur.com/gallery/any-love-out-there-kingdom-hearts-yun1xcr)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dyi7udfxpxh4sak2b42noombqu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
