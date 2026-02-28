@@ -14,7 +14,7 @@ FANDOMS:
 
 ⁺‧₊˚ ཐི⋆Kingdom Hearts, Murder Drones, Dandys World, Pokemon, Omori, Cookie Run Kingdom, She-ra, The Owl House, MineCraft Story Mode, Transformers, Deltarune, Splatoon, Searching For a World That Shouldn't exists, Voltron!!(again pls talk to me at these gulp..)⋆ཋྀ ˚₊‧⁺
 
-| {other note ⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's art, yet again full credit to them</3} |
+| {other note ⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's (on pinterest) art, yet again full credit to them</3} |
 
 [
 [[[](https://media.tenor.com/QROpQPdOSIIAAAAM/kingdom-hearts-roxas.gif)
