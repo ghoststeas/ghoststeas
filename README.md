@@ -17,5 +17,4 @@ FANDOMS:
 | {other note ⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's art, yet again full credit to them</3} |
 
 
-[[[](https://media.tenor.com/QROpQPdOSIIAAAAM/kingdom-hearts-roxas.gif)](https://tenor.com/view/kingdom-hearts-roxas-xion-axel-chris-gif-21903029)
-](https://media1.tenor.com/m/QROpQPdOSIIAAAAd/kingdom-hearts-roxas.gif)
+[[[](https://media.tenor.com/QROpQPdOSIIAAAAM/kingdom-hearts-roxas.gif)(https://github.com/user-attachments/assets/ee321a9a-7d2d-46cf-9bf2-bb43ffaf08f1)
