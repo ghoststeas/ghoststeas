@@ -1,5 +1,4 @@
-[
-](https://i.makeagif.com/media/8-17-2015/llmUO1.gif)
+[](https://i.makeagif.com/media/8-17-2015/llmUO1.gif)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dyi7udfxpxh4sak2b42noombqu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
