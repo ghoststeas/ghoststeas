@@ -1,6 +1,5 @@
 
-](https://64.media.tum![Uploading tumblr_inline_pb0hzgIBUD1rltnth_400.gif…]()
-blr.com/5fabbe21461d9cef36a0ae4e77ea4548/tumblr_inline_pb0hzgIBUD1rltnth_400.gif)
+![tumblr_n3xpw1KBLh1sm6lr0o1_500](https://github.com/user-attachments/assets/568c48b9-c7e9-4a97-8866-d36e53e1c171)
 
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･bleh
 
