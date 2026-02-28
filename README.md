@@ -1,4 +1,5 @@
-[](https://media.tenor.com/tp0oADDopDUAAAPs/kairi-sora-and-riku-together-at-destiny-islands-kingdom-hearts.webm)
+[kairi-sora-and-riku-together-at-destiny-islands-kingdom-hearts.webm](https://github.com/user-attachments/assets/4e5b31c5-6af4-4bdc-a7cc-3cdea961c7b4)
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dyi7udfxpxh4sak2b42noombqu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
@@ -11,3 +12,4 @@ FANDOMS:
 ⁺‧₊˚ ཐི⋆Kingdom Hearts, Murder Drones, Dandys World, Pokemon, Omori, Cookie Run Kingdom, She-ra, The Owl House, MineCraft Story Mode, Transformers, Deltarune, Splatoon, Searching For a World That Shouldn't exists, Voltron!!(again pls talk to me at these gulp..)⋆ཋྀ ˚₊‧⁺
 
 | {other note ⭐🍃. SORA . w2i | c&h !! skin is based off of Cozmo690's art, yet again full credit to them</3} |
+[kairi-sora-and-riku-together-at-destiny-islands-kingdom-hearts.webm](https://github.com/user-attachments/assets/4e5b31c5-6af4-4bdc-a7cc-3cdea961c7b4)
