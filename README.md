@@ -9,7 +9,7 @@ ABOUT ME!!
 
 ⁺‧₊˚ ཐི⋆IDK HOW TO MAKE A GUTHUB BUT ITS FINE!! I like a lot of games, shows as you can see in "FANDOMS:" and i'd be honored to talk about them with you! Other then fandoms I also really like pirates and Disney. Anyways, since i'm on a laptop I can't see my spelling mistakes so I apologize in advance, i'm fine with anyone talking with me just don't bring up politics or homophobia. I don't want to hear or talk about any of that stuff keep it twords yourself. Mind you i'm offtab a lot as well so I might see any whispers a little to late but I SWEAR I'M ONT IGNORING YOU I'M SORRY! Not speaking but speaking of fandoms..Kingdom hearts anyone..?⋆ཋྀ ˚₊‧⁺
 
-| {imight like Roxas a little. A little to much...who said that? It's always so windy!} |
+| {I might like Roxas a little. A little to much...who said that? It's always so windy!} |
 
 FANDOMS:
 
