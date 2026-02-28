@@ -17,6 +17,4 @@ FANDOMS:
 
 | {other note ⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's (on pinterest) art, yet again full credit to them</3} |
 
-[
-[[[](https://media.tenor.com/QROpQPdOSIIAAAAM/kingdom-he![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/6e5a8a7f-efb9-4989-b89b-076d08dd7d3c)
-arts-roxas.gif)
+![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/c17972dd-9bf2-479b-9dc3-913de8307479)
