@@ -1,7 +1,6 @@
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 
-![IMMASOB](https://github.com/user-attachments/assets/323726d0-8f28-4b9d-9b37-8bcb7283d944) [
-](https://67.media.tumblr.com/a08de12bb812d2708408c43b04898a49/tumblr_n3xpw1KBLh1sm6lr0o1_500.gif)
+![IMMASOB](https://github.com/user-attachments/assets/323726d0-8f28-4b9d-9b37-8bcb7283d944) [](https://67.media.tumblr.com/a08de12bb812d2708408c43b04898a49/tumblr_n3xpw1KBLh1sm6lr0o1_500.gif)
 
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
