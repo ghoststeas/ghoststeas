@@ -23,4 +23,4 @@ FANDOMS:
 ![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/c17972dd-9bf2-479b-9dc3-913de8307479)
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
-[https://static.wikia.nocookie.net/disney/images/e/e1/Kh_days_trio.jpg/revision/latest?cb=20121013032811](https://ghoststea.atabook.org/)
+(https://ghoststea.atabook.org/)
