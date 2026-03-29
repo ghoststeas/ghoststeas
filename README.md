@@ -12,7 +12,8 @@ ABOUT ME/DNI cramped into one thing:
 
 LOOK! STAMPS wow:
 
-| ⋆ [Kingdom heart](https://64.media.tumblr.com/e0a28514ada6018731e4b844ae6db938/28d92f66f17153d4-7c/s100x200/8292c446e40016fcca431d4f81a5cf384f959793.gifv)s⋆ |
+| ⋆ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a23dab41-5a33-4504-8a7d-9d7d0ccff49e" />
+⋆ |
 
 | ⋆ {⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's art on Pinterst btw!} ⋆ |
 
