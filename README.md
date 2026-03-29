@@ -10,10 +10,10 @@ ABOUT ME/DNI cramped into one thing:
 
 | ⋆ I like games. Mhm</3 anyways I like to draw in my freetime and i'm slowly learning how to color nicely in pt! Right now i'm enjoying kingdom hearts a lot if you can't tell from..the endless amount of Roxas stuff but I do like other things like Transformers, Omori, MCSM that stuff. Anywho dni if your homophobic, proshipper, and rlly into poltics (idk what you would call someone who likes that stuff). I don't like talking/ hearing about it. ⋆ |
 
-LOOK! STAMPS wow:
+LOOK! STAMPs!:
 
-| ⋆ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a23dab41-5a33-4504-8a7d-9d7d0ccff49e" />
-⋆ |
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a23dab41-5a33-4504-8a7d-9d7d0ccff49e" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/45620989-e601-4b5e-9915-07cd3cfc5832" /> <img width="100" height="56" alt="image" src="https://github.com/user-attachments/assets/93463976-d2f6-4aa3-a62a-6dd4cfbe2885" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/20cddbfa-507b-4a76-aab1-a5f6ecbf819c" />
+
 
 | ⋆ {⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's art on Pinterst btw!} ⋆ |
 
