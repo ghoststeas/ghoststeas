@@ -21,5 +21,3 @@ Oh look stamps:
 ![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/c17972dd-9bf2-479b-9dc3-913de8307479)
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
-![tumblr_n3xpw1KBLh1sm6lr0o1_500](https://github.com/user-attachments/assets/4b1eb6d0-506f-407d-9e38-48d41d62972a)
-
