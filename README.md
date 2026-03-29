@@ -10,11 +10,11 @@ ABOUT ME/DNI cramped into one thing:
 
 LOOK! STAMPs!:
 
-
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b93bea54-58e3-42f3-a2a5-4cd9b99ced41" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f3d67747-df47-4967-a418-3d12cb4528a6" /> ![tumblr_aaed4f3ce2789d2d5e5c903d713c5a21_a6d0978f_100](https://github.com/user-attachments/assets/a3baec66-46db-4589-861b-7dd837cd8d9f)
 
 
 | ⋆ {⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's art on Pinterst btw!} ⋆ |
-![tumblr_n3xpw1KBLh1sm6lr0o1_500](https://github.com/user-attachments/assets/4b1eb6d0-506f-407d-9e38-48d41d62972a)
+
 
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
