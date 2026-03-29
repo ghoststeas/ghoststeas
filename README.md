@@ -23,4 +23,3 @@ FANDOMS:
 ![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/c17972dd-9bf2-479b-9dc3-913de8307479)
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
-(https://ghoststea.atabook.org/)
