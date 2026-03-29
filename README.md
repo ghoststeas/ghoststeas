@@ -10,8 +10,7 @@ ABOUT ME/DNI cramped into one thing:
 
 LOOK STAMPS! DISTRACTION FROM THE MESS OF MY GITHUB!!:
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b93bea54-58e3-42f3-a2a5-4cd9b99ced41" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f3d67747-df47-4967-a418-3d12cb4528a6" /> ![tumblr_aaed4f3ce2789d2d5e5c903d713c5a21_a6d0978f_100](https://github.com/user-attachments/assets/a3baec66-46db-4589-861b-7dd837cd8d9f) <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fb12a910-e01e-4f38-b240-3dd72c78d9fd" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5d274660-a33f-480b-ac6f-f5ff61f31220" /> ![tumblr_b9da65fa347b43ddb2d360a3f95e3864_a81c6add_100](https://github.com/user-attachments/assets/2a99f9d6-69e5-46dc-9a44-31ccb73b200c) <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/79ff15b8-564b-4488-b5ac-0a65953f243e"  
-
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b93bea54-58e3-42f3-a2a5-4cd9b99ced41" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f3d67747-df47-4967-a418-3d12cb4528a6" /> ![tumblr_aaed4f3ce2789d2d5e5c903d713c5a21_a6d0978f_100](https://github.com/user-attachments/assets/a3baec66-46db-4589-861b-7dd837cd8d9f) <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fb12a910-e01e-4f38-b240-3dd72c78d9fd" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5d274660-a33f-480b-ac6f-f5ff61f31220" /> ![tumblr_b9da65fa347b43ddb2d360a3f95e3864_a81c6add_100](https://github.com/user-attachments/assets/2a99f9d6-69e5-46dc-9a44-31ccb73b200c)
 
 | ⋆ {⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's art on Pinterst btw!} ⋆ |
 
