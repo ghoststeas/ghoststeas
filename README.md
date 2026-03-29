@@ -23,6 +23,4 @@ FANDOMS:
 ![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/c17972dd-9bf2-479b-9dc3-913de8307479)
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
-
-
-https://oyster.ignimgs.com/mediawiki/apis.ign.com/kingdom-hearts-3/a/ab/Roxas_358_2_days.jpg?width=640
+https://static.wikia.nocookie.net/disney/images/e/e1/Kh_days_trio.jpg/revision/latest?cb=20121013032811
