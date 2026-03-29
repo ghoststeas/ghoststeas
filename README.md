@@ -25,3 +25,5 @@ FANDOMS:
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
 
+[
+](https://static.wikia.nocookie.net/kingdomhearts/images/b/b5/Seasalt_Trio_KH_III_Ending.png/revision/latest?cb=20190222042933)
