@@ -12,7 +12,7 @@ ABOUT ME/DNI cramped into one thing:
 
 LOOK! STAMPs!:
 
-[<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a23dab41-5a33-4504-8a7d-9d7d0ccff49e" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/45620989-e601-4b5e-9915-07cd3cfc5832" /> <img width="100" height="56" alt="image" src="https://github.com/user-attachments/assets/93463976-d2f6-4aa3-a62a-6dd4cfbe2885" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/20cddbfa-507b-4a76-aab1-a5f6ecbf819c" />](https://64.media.tumblr.com/aaed4f3ce2789d2d5e5c903d713c5a21/b09b0a7efcf6203b-dc/s100x200/a6d0978fc7417c02c3eedc93910b08d2b361878d.gifv) <img width="69" height="78" alt="image" src="https://github.com/user-attachments/assets/6b6d6d02-cbd3-42bd-8c01-2bf2fc2bc476" />
+
 
 
 | ⋆ {⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's art on Pinterst btw!} ⋆ |
@@ -22,3 +22,4 @@ LOOK! STAMPs!:
 ![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/c17972dd-9bf2-479b-9dc3-913de8307479)
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
+https://64.media.tumblr.com/6320b2cabbebe505dbdaebc5138e8502/a5efffdaa1f1e6c6-2e/s100x200/18910502a43ee13e12029b08e5b5df8b2fae7487.gifv
