@@ -6,15 +6,13 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dyi7udfxpxh4sak2b42noombqu&cover_image=true&theme=default&show_offline=false&background_color=07112a&interchange=false&profanity=false&bar_color=73bfb9)](https://github.com/kittinan/spotify-github-profile)
 
-ABOUT ME:
+ABOUT ME/DNI cramped into one thing:
 
-| ⋆ IDK HOW TO MAKE A GUTHUB BUT ITS FINE!! I like a lot of games, shows as you can see in "FANDOMS:" and i'd be honored to talk about them with you! Other then fandoms I also really like pirates and Disney. Anyways, since i'm on a laptop I can't see my spelling mistakes so I apologize in advance, i'm fine with anyone talking with me just don't bring up politics or homophobia. I don't want to hear or talk about any of that stuff keep it twords yourself. Mind you i'm offtab a lot as well so I might see any whispers a little to late but I SWEAR I'M NOT IGNORING YOU I'M SORRY! Not speaking but speaking of fandoms..Kingdom hearts anyone..? ⋆ |
+| ⋆ I like games. Mhm</3 anyways I like to draw in my freetime and i'm slowly learning how to color nicely in pt! Right now i'm enjoying kingdom hearts a lot if you can't tell from..the endless amount of Roxas stuff but I do like other things like Transformers, Omori, MCSM that stuff. Anywho dni if your homophobic, proshipper, and rlly into poltics (idk what you would call someone who likes that stuff). I don't like talking/ hearing about it. ⋆ |
 
-|﹒⋆ {My favriote character. Might just be Roxas...shh} ⋆ |
+LOOK! STAMPS wow:
 
-FANDOMS:
-
-| ⋆ Kingdom Hearts, Murder Drones, Dandys World, Pokemon, Omori, Cookie Run Kingdom, She-ra, The Owl House, Minecraft Story Mode, Transformers, Deltarune, Splatoon, Searching For a World That Shouldn't exists, Voltron, Treasure Planet. Do ppl still know what that is..</3?? (again pls talk to me at these gulp..) ⋆ |
+| ⋆ [Kingdom heart](https://64.media.tumblr.com/e0a28514ada6018731e4b844ae6db938/28d92f66f17153d4-7c/s100x200/8292c446e40016fcca431d4f81a5cf384f959793.gifv)s⋆ |
 
 | ⋆ {⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's art on Pinterst btw!} ⋆ |
 
