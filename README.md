@@ -16,10 +16,10 @@ LOOK! STAMPs!:
 
 
 | ⋆ {⭐🍃. SORA . w2i | c&h !! skin on pt is based off of Cozmo690's art on Pinterst btw!} ⋆ |
+![tumblr_n3xpw1KBLh1sm6lr0o1_500](https://github.com/user-attachments/assets/4b1eb6d0-506f-407d-9e38-48d41d62972a)
 
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
 ![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/c17972dd-9bf2-479b-9dc3-913de8307479)
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
-https://64.media.tumblr.com/6320b2cabbebe505dbdaebc5138e8502/a5efffdaa1f1e6c6-2e/s100x200/18910502a43ee13e12029b08e5b5df8b2fae7487.gifv
