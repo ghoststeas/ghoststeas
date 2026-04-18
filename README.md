@@ -14,6 +14,7 @@ About me! (And dni that stuff):
 Oh look stamps:
 [
 ](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9d628027-5ab2-4c49-93f4-f9d450d8309c/d338hb0-6d85461b-2b53-436e-85e7-a6c7d3255cb7.png/v1/fill/w_99,h_56,q_80,strp/stamp_sora_by_youfie_d338hb0-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiL2YvOWQ2MjgwMjctNWFiMi00YzQ5LTkzZjQtZjlkNDUwZDgzMDljL2QzMzhoYjAtNmQ4NTQ2MWItMmI1My00MzZlLTg1ZTctYTZjN2QzMjU1Y2I3LnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.5WOU6DsXN8hyIovRUtp-eU6DPPojMUeWJxcIAadDD0U)
+
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
 ![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/c17972dd-9bf2-479b-9dc3-913de8307479)
