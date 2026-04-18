@@ -12,6 +12,8 @@ About me! (And dni that stuff):
 | ⋆ I like games. Mhm</3 anyways I like to draw in my freetime and i'm slowly learning how to color nicely in pt! Right now i'm enjoying kingdom hearts a lot if you can't tell from..the endless amount of Roxas stuff but I do like other things like Transformers, Omori, MCSM and I just got into madoka magica!! That stuff. Anywho dni if your homophobic, proshipper, and rlly into poltics (idk what you would call someone who likes that stuff). I don't like talking/ hearing about it. ⋆ |
 
 Oh look stamps:
+
+<img width="99" height="56" alt="aaaaaa" src="https://github.com/user-attachments/assets/24731e32-7981-491b-b6f0-a24d8f4a28ff" />
 <img width="99" height="56" alt="abcdef" src="https://github.com/user-attachments/assets/6b1d3aab-5e60-4c12-8a6b-2f9e8e70de1b"/>
 <img width="98" height="54" alt="abcd" src="https://github.com/user-attachments/assets/0ced8158-c081-4f8c-b927-4fa3ac8cba48"/>
 <img width="99" height="56" alt="abc" src="https://github.com/user-attachments/assets/a93a521a-9300-4f3d-aae0-d5985f12fa73"/>
@@ -19,6 +21,7 @@ Oh look stamps:
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/b5b01d75-e24d-4749-90f8-926f85e680aa"/>
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/ec69cff5-da9c-4dbe-8d3d-c8d927d4c8bf"/>
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/4945cb9d-33f2-48bb-8079-03552ea630e7"/>
+<img width="99" height="56" alt="aababa" src="https://github.com/user-attachments/assets/59f3572d-b6f7-4210-9dd1-cf35f68449fd" />
 
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
