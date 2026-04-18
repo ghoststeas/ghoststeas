@@ -19,7 +19,6 @@ Oh look stamps:
 <img width="99" height="56" alt="abcdefgh" src="https://github.com/user-attachments/assets/ba9ca196-2f13-4411-a86a-d7c0b8c02761"/>
 <img width="99" height="56" alt="abcdefg" src="https://github.com/user-attachments/assets/b5b01d75-e24d-4749-90f8-926f85e680aa"/>
 <img width="99" height="56" alt="abcdefghi" src="https://github.com/user-attachments/assets/ec69cff5-da9c-4dbe-8d3d-c8d927d4c8bf"/>
-<img width="99" height="56" alt="abcdefghijk" src="https://github.com/user-attachments/assets/4945cb9d-33f2-48bb-8079-03552ea630e7"/>
 <img width="99" height="56" alt="abcdefghijkl" src="https://github.com/user-attachments/assets/3597a018-5e50-46c5-af65-34ece467731b" />
 
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
