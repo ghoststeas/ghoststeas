@@ -18,7 +18,6 @@ Oh look stamps (my stamps screwed up so i'm down to these nine</3):
 <img width="98" height="54" alt="abcd" src="https://github.com/user-attachments/assets/0ced8158-c081-4f8c-b927-4fa3ac8cba48"/>
 <img width="99" height="56" alt="abc" src="https://github.com/user-attachments/assets/a93a521a-9300-4f3d-aae0-d5985f12fa73"/>
 <img width="99" height="56" alt="ah" src="https://github.com/user-attachments/assets/ba9ca196-2f13-4411-a86a-d7c0b8c02761"/>
-<img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/b5b01d75-e24d-4749-90f8-926f85e680aa"/>
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/ec69cff5-da9c-4dbe-8d3d-c8d927d4c8bf"/>
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/4945cb9d-33f2-48bb-8079-03552ea630e7"/>
 <img width="99" height="56" alt="aababa" src="https://github.com/user-attachments/assets/59f3572d-b6f7-4210-9dd1-cf35f68449fd" />
