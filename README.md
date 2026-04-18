@@ -22,6 +22,7 @@ Oh look stamps:
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/ec69cff5-da9c-4dbe-8d3d-c8d927d4c8bf"/>
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/4945cb9d-33f2-48bb-8079-03552ea630e7"/>
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/3597a018-5e50-46c5-af65-34ece467731b" />
+<img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/bd7a8525-bc66-4d39-a01f-4681c41f822c"/>
 
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
