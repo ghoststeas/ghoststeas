@@ -22,6 +22,7 @@ Oh look stamps (my stamps screwed up so i'm down to these eight</3):
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/4945cb9d-33f2-48bb-8079-03552ea630e7"/>
 <img width="99" height="56" alt="aababa" src="https://github.com/user-attachments/assets/59f3572d-b6f7-4210-9dd1-cf35f68449fd" />
 
+
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
 ![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/c17972dd-9bf2-479b-9dc3-913de8307479)
