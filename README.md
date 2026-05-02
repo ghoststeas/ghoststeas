@@ -24,10 +24,7 @@ Oh look stamps (my stamps screwed up so i'm down to these eight</3):
 
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
-![MOREROXASYEYSEYYS](https://github.com/user-attachments/assets/c17972dd-9bf2-479b-9dc3-913de8307479)
+<img width="600" height="300" alt="what" src="https://github.com/user-attachments/assets/b5f12efb-7099-4f75-b6a5-ae2a99f81ef9" />
 
 ☆⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁☆
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
-
-
-<img width="550" height="300" alt="what" src="https://github.com/user-attachments/assets/b5f12efb-7099-4f75-b6a5-ae2a99f81ef9" />
