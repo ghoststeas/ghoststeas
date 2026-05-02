@@ -30,7 +30,6 @@ Oh look stamps (my stamps screwed up so i'm down to these eight</3):
 ☆⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁☆
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
-<img width="320" height="180" alt="what" src="https://github.com/user-attachments/assets/ab80cd83-9b39-4855-8b64-1ffb794069f6" />
 
 
 
