@@ -1,6 +1,6 @@
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 ☆⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁☆
-<img width="550" height="300" alt="aWjnXvQ" src="https://github.com/user-attachments/assets/e1b4b3dd-9b80-48a2-b8f0-64806cd9e249" />
+<img width="600" height="250" alt="aWjnXvQ" src="https://github.com/user-attachments/assets/e1b4b3dd-9b80-48a2-b8f0-64806cd9e249" />
 
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
@@ -14,7 +14,7 @@ Oh look stamps (my stamps screwed up so i'm down to these eight</3):
 
 <img width="99" height="56" alt="aaaaaa" src="https://github.com/user-attachments/assets/24731e32-7981-491b-b6f0-a24d8f4a28ff" />
 <img width="99" height="56" alt="abcdef" src="https://github.com/user-attachments/assets/6b1d3aab-5e60-4c12-8a6b-2f9e8e70de1b"/>
-<img width="98" height="54" alt="abcd" src="https://github.com/user-attachments/assets/0ced8158-c081-4f8c-b927-4fa3ac8cba48"/>
+<img width="99" height="56" alt="abcd" src="https://github.com/user-attachments/assets/0ced8158-c081-4f8c-b927-4fa3ac8cba48"/>
 <img width="99" height="56" alt="abc" src="https://github.com/user-attachments/assets/a93a521a-9300-4f3d-aae0-d5985f12fa73"/>
 <img width="99" height="56" alt="ah" src="https://github.com/user-attachments/assets/ba9ca196-2f13-4411-a86a-d7c0b8c02761"/>
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/ec69cff5-da9c-4dbe-8d3d-c8d927d4c8bf"/>
