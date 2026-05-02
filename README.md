@@ -30,4 +30,4 @@ Oh look stamps (my stamps screwed up so i'm down to these eight</3):
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
 
-<img width="320" height="180" alt="what" src="https://github.com/user-attachments/assets/b5f12efb-7099-4f75-b6a5-ae2a99f81ef9" />
+<img width="550" height="300" alt="what" src="https://github.com/user-attachments/assets/b5f12efb-7099-4f75-b6a5-ae2a99f81ef9" />
