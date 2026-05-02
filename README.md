@@ -31,6 +31,6 @@ Oh look stamps (my stamps screwed up so i'm down to these eight</3):
 
 
 
-<img width="800" height="1000" alt="aWjnXvQ" src="https://github.com/user-attachments/assets/e1b4b3dd-9b80-48a2-b8f0-64806cd9e249" />
+<img width="700" height="500" alt="aWjnXvQ" src="https://github.com/user-attachments/assets/e1b4b3dd-9b80-48a2-b8f0-64806cd9e249" />
 
 
