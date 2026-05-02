@@ -1,6 +1,6 @@
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 ☆⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁☆
-  ![IMMASOB](https://github.com/user-attachments/assets/323726d0-8f28-4b9d-9b37-8bcb7283d944)
+<img width="700" height="300" alt="aWjnXvQ" src="https://github.com/user-attachments/assets/e1b4b3dd-9b80-48a2-b8f0-64806cd9e249" />
 
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
@@ -28,9 +28,3 @@ Oh look stamps (my stamps screwed up so i'm down to these eight</3):
 
 ☆⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁☆
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
-
-
-
-<img width="700" height="300" alt="aWjnXvQ" src="https://github.com/user-attachments/assets/e1b4b3dd-9b80-48a2-b8f0-64806cd9e249" />
-
-
