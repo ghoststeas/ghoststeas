@@ -1,6 +1,6 @@
 $\color{#93693e}{\text{⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢}}$
 $\color{#d1b497}{\text{☆⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁☆}}$
-<div align="center"><img width="750" height="280" alt="aWjnXvQ" src="https://github.com/user-attachments/assets/e1b4b3dd-9b80-48a2-b8f0-64806cd9e249" />
+<div align="center"><img width="750" height="290" alt="aWjnXvQ" src="https://github.com/user-attachments/assets/e1b4b3dd-9b80-48a2-b8f0-64806cd9e249" />
 
 $\color{#ca9b6e}{\text{╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚}}$
 
@@ -31,7 +31,7 @@ $\color{#93693e}{\text{Lookie lookie more kh how shocking from me heh...}}$
 
 $\color{#ca9b6e}{\text{╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚}}$
 
-<img width="800" height="280" alt="what" src="https://github.com/user-attachments/assets/b5f12efb-7099-4f75-b6a5-ae2a99f81ef9" />
+<img width="750" height="290" alt="what" src="https://github.com/user-attachments/assets/b5f12efb-7099-4f75-b6a5-ae2a99f81ef9" />
 
 $\color{#d1b497}{\text{☆⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁☆}}$
 $\color{#93693e}{\text{⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣}}$
