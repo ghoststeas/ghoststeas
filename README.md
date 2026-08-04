@@ -10,6 +10,7 @@
 <div align="center"> Int freely unless said other wise like dni/dniuf I don't bite!! Actually is super cool talking in whispers ◝(ᵔᗜᵔ)◜ ⋆ |
 <div align="center"> Bmf if u have the same interests as me if u want just check out my dni on my straw (which is a wip) js in case ⋆ |
 <div align="center"> Also githubs a big fat wip as well!! ⋆ |    
+  
 $\color{#00FF00}{\text{This text uses a green hex code!}}$
   
 <br>Lookie lookie more kh how shocking from me heh..
