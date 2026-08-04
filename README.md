@@ -17,7 +17,7 @@ $\color{#d1b497}{\text{| ⋆ Bmf if u have the same interests as me if u want ju
 $\color{#d1b497}{\text{| ⋆ Also github/ata/straw are big fat wip as well!! Very new to this still and have a lot planned for them (˶ˆ꒳ˆ˵) ⋆ |}}$
 <br>$\color{#ca9b6e}{\text{... ☆ ...}}$
   
-$\color{#9c7650}{\text{Lookie lookie more kh how shocking from me heh...}}$
+$\color{#93693e}{\text{Lookie lookie more kh how shocking from me heh...}}$
   
 <br> <img width="99" height="56" alt="aaaaaa" src="https://github.com/user-attachments/assets/24731e32-7981-491b-b6f0-a24d8f4a28ff" />
 <img width="99" height="56" alt="abcdef" src="https://github.com/user-attachments/assets/6b1d3aab-5e60-4c12-8a6b-2f9e8e70de1b"/>
