@@ -10,7 +10,6 @@
 About me! (And dni that stuff):
 
 <p align="center"> | ⋆ I like games. Mhm</3 anyways I like to draw in my freetime and i'm slowly learning how to color nicely in pt! Right now i'm enjoying kingdom hearts a lot if you can't tell from..the endless amount of Roxas stuff but I do like other things like Transformers, Omori, MCSM, SFAWTNE and I just got into Madoka Magica!! That stuff. Anywho dni if your homophobic, proshipper, and rlly into poltics (idk what you would call someone who likes that stuff). I don't like talking/ hearing about it. ⋆ |.</p>
- ike talking/ hearing about it. ⋆ | .</p>
 
 Oh look stamps (my stamps screwed up so i'm down to these eight</3):
 
