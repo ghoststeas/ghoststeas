@@ -6,9 +6,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dyi7udfxpxh4sak2b42noombqu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<p align="center">"What are you talking about? I am me nobody else!".</p>
-
-<div align="center"> Int freely unless said other wise like dni/dniuf I don't bitee
+$\color{#77593b}{\text{<p align="center">"What are you talking about? I am me nobody else!".</p>}}$
+<div align="center"> Int freely unless said other wise like dni/dniuf I don't bite
 <div align="center"> Bmf if you like kh and if you don't fit the DNI on straw (which is a wip) 
 <div align="center"> Also githubs a big fat wip as well!!
   
