@@ -9,8 +9,9 @@
 <p align="center">About me! (And dni that stuff):.</p>
 About me! (And dni that stuff):
 
-<div align="center"> | ⋆ I like games. Mhm</3 anyways I like to draw in my freetime and i'm slowly learning how to color nicely in pt! Right now i'm enjoying kingdom hearts a lot  <div align="center"> if you can't tell from..the endless amount of Roxas stuff but I do like other things like Transformers, Omori, MCSM, SFAWTNE and I just got into Madoka Magica <div align="center">!! That stuff. Anywho dni if your homophobic, proshipper, and rlly into poltics (idk what you would call someone who likes that stuff). I don't like talking/ <div align="center"> hearing about it. (This whole github page is a wip btw!!) ⋆ |
+<div align="center"> | ⋆ I like games. Mhm</3 anyways I like to draw in my freetime and i'm slowly learning how to color nicely in pt! Right now i'm enjoying kingdom hearts a lot  <div align="center"> if you can't tell from..the endless amount of Roxas stuff but I do like other things like Transformers, Omori, MCSM, SFAWTNE and I just got into Madoka Magica <div align="center">!! That stuff. Anywho dni if your homophobic, proshipper, and rlly into poltics (idk what you would call someone who likes that stuff). I don't like talking/ <div align="center"> hearing about it. (This whole github page is a wip btw!! It's pretty obvious idk abt uu..if u have tips it would be cool if u gave ha.) ⋆ |
 
+<br>
 
 Oh look stamps (my stamps screwed up so i'm down to these eight</3):
 
