@@ -12,11 +12,9 @@ $\color{#d1b497}{\text{| ⋆ Int freely unless said other wise like dni/dniuf I 
 <br>$\color{#ca9b6e}{\text{... ☆ ...}}$
 
 $\color{#d1b497}{\text{| ⋆ Bmf if u have the same interests as me if u want just check out my dni on my straw! ⋆ |}}$
-
 <br>$\color{#ca9b6e}{\text{... ☆ ...}}$
 
-<div align="center"> | ⋆ Also github/ata/straw are big fat wip as well!! Very new to this still and have a lot planned for them ˶ˆ꒳ˆ˵ ⋆ | 
-  
+$\color{#d1b497}{\text{| ⋆ Also github/ata/straw are big fat wip as well!! Very new to this still and have a lot planned for them (˶ˆ꒳ˆ˵) ⋆ |}}$
 <br>$\color{#ca9b6e}{\text{... ☆ ...}}$
   
 <div align="center">Lookie lookie more kh how shocking from me heh..
