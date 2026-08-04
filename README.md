@@ -8,9 +8,9 @@
 
 <p align="center">"What are you talking about? I am me nobody else!".</p>
 
-<div align="center"> int freely unless said other wise like dni/dniuf
-<div align="center"> bmf if you like kh and if you don't fit the DNI on straw (which is a WIP) 
-<div align="center"> also githubs a big fat wip
+<div align="center"> Int freely unless said other wise like dni/dniuf I don't bitee
+<div align="center"> Bmf if you like kh and if you don't fit the DNI on straw (which is a wip) 
+<div align="center"> Also githubs a big fat wip as well!!
 
 <br>Oh look stamps (my stamps screwed up so i'm down to these eight</3):
 
