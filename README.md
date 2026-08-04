@@ -14,7 +14,7 @@ $\color{#ca9b6e}{\text{"What are you talking about? I am me nobody else!"}}$
 <div align="center"> | ⋆ Also githubs a big fat wip as well!! ⋆ |    
 <br> ﹌﹌﹌﹌﹌﹌﹌﹌
 Lookie lookie more kh how shocking from me heh..
-
+<br>
 <img width="99" height="56" alt="aaaaaa" src="https://github.com/user-attachments/assets/24731e32-7981-491b-b6f0-a24d8f4a28ff" />
 <img width="99" height="56" alt="abcdef" src="https://github.com/user-attachments/assets/6b1d3aab-5e60-4c12-8a6b-2f9e8e70de1b"/>
 <img width="99" height="56" alt="abcd" src="https://github.com/user-attachments/assets/0ced8158-c081-4f8c-b927-4fa3ac8cba48"/>
