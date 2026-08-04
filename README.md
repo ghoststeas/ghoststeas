@@ -6,16 +6,12 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dyi7udfxpxh4sak2b42noombqu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<br>$\color{#ca9b6e}{\text{"What are you talking about? I am me nobody else!"}}$
+$\color{#ca9b6e}{\text{"What are you talking about? I am me nobody else!"}}$
 
 $\color{#d1b497}{\text{| ⋆ Int freely unless said other wise like dni/dniuf I don't bite!! Actually is super cool talking in whispers ◝(ᵔᗜᵔ)◜ ⋆ |}}$
-
 <br>$\color{#ca9b6e}{\text{... ☆ ...}}$
-
 $\color{#d1b497}{\text{| ⋆ Bmf if u have the same interests as me if u want just check out my dni on my straw! ⋆ |}}$
-
-<br> ... ☆ ...
-
+<br>$\color{#ca9b6e}{\text{... ☆ ...}}$
 <div align="center"> | ⋆ Also githubs a big fat wip as well!! Very new to this still. ⋆ |    
 <br> ... ☆ ...
 <div align="center">Lookie lookie more kh how shocking from me heh..
