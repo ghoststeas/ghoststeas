@@ -29,7 +29,7 @@ $\color{#93693e}{\text{Lookie lookie more kh how shocking from me heh...}}$
 <img width="99" height="56" alt="aababa" src="https://github.com/user-attachments/assets/59f3572d-b6f7-4210-9dd1-cf35f68449fd" />
 
 
-$\color{#ca9b6e}{\text{˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵}}$
+$\color{#ca9b6e}{\text{╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚}}$
 
 <img width="800" height="280" alt="what" src="https://github.com/user-attachments/assets/b5f12efb-7099-4f75-b6a5-ae2a99f81ef9" />
 
