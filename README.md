@@ -19,14 +19,14 @@ $\color{#d1b497}{\text{| ⋆ Also github/ata/straw are big fat wip as well!! Ver
   
 $\color{#93693e}{\text{Lookie lookie more kh how shocking from me heh...}}$
   
-<br> <img width="99" height="56" alt="aaaaaa" src="https://github.com/user-attachments/assets/24731e32-7981-491b-b6f0-a24d8f4a28ff" />
-<img width="99" height="56" alt="abcdef" src="https://github.com/user-attachments/assets/6b1d3aab-5e60-4c12-8a6b-2f9e8e70de1b"/>
-<img width="99" height="56" alt="abcd" src="https://github.com/user-attachments/assets/0ced8158-c081-4f8c-b927-4fa3ac8cba48"/>
-<img width="99" height="56" alt="abc" src="https://github.com/user-attachments/assets/a93a521a-9300-4f3d-aae0-d5985f12fa73"/>
-<img width="99" height="56" alt="ah" src="https://github.com/user-attachments/assets/ba9ca196-2f13-4411-a86a-d7c0b8c02761"/>
-<img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/ec69cff5-da9c-4dbe-8d3d-c8d927d4c8bf"/>
-<img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/4945cb9d-33f2-48bb-8079-03552ea630e7"/>
-<img width="99" height="56" alt="aababa" src="https://github.com/user-attachments/assets/59f3572d-b6f7-4210-9dd1-cf35f68449fd" />
+<br> <img width="97" height="53" alt="aaaaaa" src="https://github.com/user-attachments/assets/24731e32-7981-491b-b6f0-a24d8f4a28ff" />
+<img width="97" height="53" alt="abcdef" src="https://github.com/user-attachments/assets/6b1d3aab-5e60-4c12-8a6b-2f9e8e70de1b"/>
+<img width="97" height="53" alt="abcd" src="https://github.com/user-attachments/assets/0ced8158-c081-4f8c-b927-4fa3ac8cba48"/>
+<img width="97" height="53" alt="abc" src="https://github.com/user-attachments/assets/a93a521a-9300-4f3d-aae0-d5985f12fa73"/>
+<img width="97" height="53" alt="ah" src="https://github.com/user-attachments/assets/ba9ca196-2f13-4411-a86a-d7c0b8c02761"/>
+<img width="97" height="53" alt="a" src="https://github.com/user-attachments/assets/ec69cff5-da9c-4dbe-8d3d-c8d927d4c8bf"/>
+<img width="97" height="53" alt="a" src="https://github.com/user-attachments/assets/4945cb9d-33f2-48bb-8079-03552ea630e7"/>
+<img width="97" height="53" alt="aababa" src="https://github.com/user-attachments/assets/59f3572d-b6f7-4210-9dd1-cf35f68449fd" />
 
 
 $\color{#ca9b6e}{\text{╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚}}$
