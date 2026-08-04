@@ -11,6 +11,7 @@
 <div align="center"> Int freely unless said other wise like dni/dniuf I don't bitee
 <div align="center"> Bmf if you like kh and if you don't fit the DNI on straw (which is a wip) 
 <div align="center"> Also githubs a big fat wip as well!!
+  
 $\color{#00FF00}{\text{This text uses a green hex code!}}$
   
 <br>Lookie lookie more kh how shocking from me heh..
