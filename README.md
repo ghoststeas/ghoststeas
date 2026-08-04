@@ -5,6 +5,7 @@
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dyi7udfxpxh4sak2b42noombqu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 <br> ﹌﹌﹌﹌﹌﹌﹌﹌
 $\color{#ca9b6e}{\text{"What are you talking about? I am me nobody else!"}}$
 <div align="center">  | ⋆ Int freely unless said other wise like dni/dniuf I don't bite!! Actually is super cool talking in whispers ◝(ᵔᗜᵔ)◜ ⋆ |
@@ -13,8 +14,8 @@ $\color{#ca9b6e}{\text{"What are you talking about? I am me nobody else!"}}$
 <br> ﹌﹌﹌﹌﹌﹌﹌﹌
 <div align="center"> | ⋆ Also githubs a big fat wip as well!! ⋆ |    
 <br> ﹌﹌﹌﹌﹌﹌﹌﹌
-Lookie lookie more kh how shocking from me heh..
-<br>
+<br> Lookie lookie more kh how shocking from me heh..
+  
 <img width="99" height="56" alt="aaaaaa" src="https://github.com/user-attachments/assets/24731e32-7981-491b-b6f0-a24d8f4a28ff" />
 <img width="99" height="56" alt="abcdef" src="https://github.com/user-attachments/assets/6b1d3aab-5e60-4c12-8a6b-2f9e8e70de1b"/>
 <img width="99" height="56" alt="abcd" src="https://github.com/user-attachments/assets/0ced8158-c081-4f8c-b927-4fa3ac8cba48"/>
