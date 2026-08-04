@@ -10,10 +10,15 @@ $\color{#ca9b6e}{\text{"What are you talking about? I am me nobody else!"}}$
 
 $\color{#d1b497}{\text{| ⋆ Int freely unless said other wise like dni/dniuf I don't bite!! Actually is super cool talking in whispers ◝(ᵔᗜᵔ)◜ ⋆ |}}$
 <br>$\color{#ca9b6e}{\text{... ☆ ...}}$
+
 $\color{#d1b497}{\text{| ⋆ Bmf if u have the same interests as me if u want just check out my dni on my straw! ⋆ |}}$
+
 <br>$\color{#ca9b6e}{\text{... ☆ ...}}$
-<div align="center"> | ⋆ Also githubs a big fat wip as well!! Very new to this still. ⋆ |    
-<br> ... ☆ ...
+
+<div align="center"> | ⋆ Also github/ata/straw are big fat wip as well!! Very new to this still and have a lot planned for them ˶ˆ꒳ˆ˵ ⋆ | 
+  
+<br>$\color{#ca9b6e}{\text{... ☆ ...}}$
+  
 <div align="center">Lookie lookie more kh how shocking from me heh..
   
 <br> <img width="99" height="56" alt="aaaaaa" src="https://github.com/user-attachments/assets/24731e32-7981-491b-b6f0-a24d8f4a28ff" />
