@@ -9,10 +9,10 @@
 $\color{#ca9b6e}{\text{"What are you talking about? I am me nobody else!"}}$
 <div align="center">  | ⋆ Int freely unless said other wise like dni/dniuf I don't bite!! Actually is super cool talking in whispers ◝(ᵔᗜᵔ)◜ ⋆ |
 <br> ... × ...
-<div align="center"> | ⋆ Bmf if u have the same interests as me if u want just check out my dni on my straw (which is a wip) js in case ⋆ |
-<br> ﹌﹌﹌﹌﹌﹌﹌﹌
+<div align="center"> | ⋆ Bmf if u have the same interests as me if u want just check out my dni on my straw! ⋆ |
+<br> ... × ...
 <div align="center"> | ⋆ Also githubs a big fat wip as well!! Very new to this still. ⋆ |    
-<br> ﹌﹌﹌﹌﹌﹌﹌﹌
+<br> ... × ...
 <div align="center">Lookie lookie more kh how shocking from me heh..
   
 <br> <img width="99" height="56" alt="aaaaaa" src="https://github.com/user-attachments/assets/24731e32-7981-491b-b6f0-a24d8f4a28ff" />
